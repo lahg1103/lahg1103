@@ -1,6 +1,6 @@
 ### Heya, name's Leslie , but you can call me Blue :) 👋
 
-Leslie Alejandra Hurtado, raised in Tamaulipas, Mexico. ```Web developer``` based in the Rio Grande Valley 🌴, Texas.
+ ```Web developer``` based in the Rio Grande Valley 🌴, Texas.
 
 💬 Let's talk about all things sustainable 🌿
 
